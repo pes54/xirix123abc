@@ -10,8 +10,5 @@
 - [/aoty](https://discord.gg/dUtWSjrw)
 - ![Capture d'écran 2024-05-28 165041](https://github.com/xirix123abc/xirix123abc/assets/165948270/5c99453a-51af-487a-b030-b76505be90ca)
 
-
-**Voici La Liste des Serveurs / Projets pour lesquels je / j'ai travaillé ⏲️ :**
-- [/lookup](https://discord.gg/lookup)
-- /termin4l
-- /boty
+- [/2sx](https://discord.gg/2sx)
+- ![Capture_d_écran_2024-06-11_162402-removebg-preview-removebg-preview](https://github.com/xirix123abc/xirix123abc/assets/165948270/15e5ae1f-607c-4f32-a65f-136495c0111e)
